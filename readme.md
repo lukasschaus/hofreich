@@ -1,5 +1,3 @@
-Homepage Reichenberger Hof Inhalte
-
 # Unsere Vision
 
 Der historische Vierseitenhof am Rand des Dorfes Reichenberg unweit des Naturschutzgebietes Märkische Schweiz in Brandenburg soll neu erwachen und zu einem lebendigen Ort des gemeinschaftlichen und ökosozialen Wohnens von Familien werden. 
