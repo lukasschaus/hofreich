@@ -27,7 +27,7 @@ Bewerbt euch gerne bei uns wenn ihr:
 - wirklich auf dem Land leben (keine Wochenendpendler) und etwas für die Region bewirken wollt
 - zwischen 25 und 40 Jahre alt seid
 - (Lust auf) viele Kinder habt
-- viele Ideen und Lust auf deren Umsetzung habt
+- voller Ideen und Motivation seid
 - richtig mit anpacken könnt und wollt (gern gesehen sind natürlich alle handwerklichen Fähigkeiten aber auch kulinarische Qualitäten;)
 -idealerweise wäre jemand mit beruflichem Hintergrund oder Interesse in der Landwirtschaft für die Gründung der SoLaWi, ist aber kein Muss
 
