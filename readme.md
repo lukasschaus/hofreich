@@ -12,8 +12,8 @@ Auch die Chance für die Kinder bei so viel Platz mit Tieren (Hund, Katze, Maus 
 
 # Wer sind wir?
 
-Bisher sind wir drei junge befreundete Familien mit Kindern im Alter zwischen 11 Monaten und 3 Jahren, die Lust haben aus Berlin aufs Land zu ziehen. Unsere Berufe sind über schnelles Internet (Softwareentwickler, HR) oder einfach so (Ärztin, Juristin, Sozialarbeiterin) landtauglich. Unsere Wertvorstellungen sind alternativ/grün geprägt, wir verstehen uns aber nicht als politische Gemeinschaft.
-Wir übernehmen den Hof von der Vorbesitzerin, die  auf einem kleinen Seitenteil mit ihren zwei Pferden und zwei Hunden weiter wohnen wird, da sie aus Altersgründen langfristig den Hof nicht alleine bewirtschaften kann.
+Bisher sind wir drei junge befreundete Familien mit Kindern im Alter zwischen 11 Monaten und 3 Jahren, die Lust haben aus Berlin aufs Land zu ziehen. Der Hof bietet genug Platz für 4-5 Familien in bereits ausgebautem, aber sanierungsbedürftigen Bestand sowie ehemaligen Nebengelassen, die noch auszubauen sind. Unsere Berufe sind über schnelles Internet (Softwareentwickler, HR) oder einfach so (Ärztin, Juristin, Sozialarbeiterin) landtauglich; Kita und Schulen gibt es in unmittelbarer Nähe. Unsere Wertvorstellungen sind alternativ/grün geprägt, wir verstehen uns aber nicht als politische Gemeinschaft. Wir glauben an das Potential, das im noch wenig entdeckten Brandenburg schlummert und möchten zeigen, wie man mit Engagement und Pfiff die Region stärken kann. 
+Wir übernehmen den Hof von der Vorbesitzerin, die  auf einem kleinen Seitenteil mit ihren zwei Pferden und zwei Hunden wohnen bleibt, da sie aus Altersgründen langfristig den Hof nicht alleine bewirtschaften kann und möchte.
 
 
 # Wo stehen wir?
@@ -26,7 +26,7 @@ Ein Teil unserer Gruppe wird Mitte bis Ende Juli 2020 auf dem Hof wohnen, in die
 
 Wir würden unsere Gruppe gerne noch um 1-2 Familien ergänzen um eine große Gemeinschaft mit Gleichgesinnten zu haben.
 Bewerbt euch gerne bei uns wenn ihr:
--wirklich auf dem Land leben und etwas bewirken wollt. Wir möchten, dass der Kern der Gemeinschaft nicht aus Wochenendpendlern besteht
+- wirklich auf dem Land leben (keine Wochenendpendler) und etwas für die Region bewirken wollt
 - zwischen 25 und 40 Jahre alt seid
 - (Lust auf) viele Kinder habt
 - viele Ideen und Lust auf deren Umsetzung habt
